@@ -1,6 +1,6 @@
 ## HNS-BROTHERHOOD Welcomes You!
 
-Yes, There Is a Secret [Handshake](https://handshake.org/) to join. Joining together as ONE will dispell the illusions of division. 
+Yes, There Is a Secret [Handshake](https://handshake.org/) to join. Joining as ONE will dispell the illusions of division. 
 
 Remember What TRUE BROTHERHOOD is...
 Here is a reminder;
