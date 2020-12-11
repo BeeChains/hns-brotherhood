@@ -10,4 +10,5 @@ That which is most joyful lives in the consciousness that there exists cooperati
 Such thought affirms that somewhere there are living True Co-workers.
 Let us recall the fundamentals which lead to Brotherhood."](http://agniyoga.org/ay_en/Brotherhood.php)
 
-contact the [Network Manager](http://admin.networkmanager/). 
+- more [HNS-DOMAINS/](http://home.hns-domains/)
+- [Network Manager](http://admin.networkmanager/)
